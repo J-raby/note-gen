@@ -1,0 +1,13 @@
+# Fecha : 
+
+## Tareas
+ - [] 
+ - [] 
+ - [] 
+
+## Reflexiones
+ - 
+ - 
+ - 
+
+ 
